@@ -11,3 +11,15 @@ However, across the board it appears that the greatest discrepancy can be found 
 More concerning is that regardless of the type of school, students traversing from 9th Grade to 12th Grade didn't appear to elevate their respective scores, indicating a more flat trend than perhaps a desired increase.
 
 While this study may reinforce the notion that students attending Charter Schools outperform those in a District setting, this data is limited in providing a direct cause for that assertion.
+
+
+
+
+
+
+**** Additional Resources ******
+In addition to In-Class instruction, Zoom Review, AskBCS and on-line searches.
+Assistance was also provided in tutoring sessions with:
+Kourt Bailey
+Steve Thomas
+
